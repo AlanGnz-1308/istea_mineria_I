@@ -1,0 +1,1 @@
+# istea_mineria_I
